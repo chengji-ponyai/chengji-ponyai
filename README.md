@@ -1,4 +1,4 @@
-Sometimes unable to receive slack messages off work because of Slack push notification is blocked by GFW. Contact me in wechat for emergency.
+Sometimes unable to response to Slack messages off work, because I'm using android and Slack push notifications are blocked by GFW. Contact me in wechat for emergency.
 
 📌 wechat: zstbsqx
 
