@@ -1,4 +1,4 @@
-Sometimes unable to response to Slack messages off work, because I'm using android and Slack push notifications are blocked by GFW. Contact me in wechat for emergency.
+Have switched to iOS and feel great so far. However you can still contact me in wechat for emergency.
 
 📌 wechat: zstbsqx
 
