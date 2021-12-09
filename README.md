@@ -1,4 +1,4 @@
-Have switched to iOS and feel great so far. However you can still contact me in wechat for emergency.
+Everything is magic if you don't understand it.
 
 📌 wechat: zstbsqx
 
